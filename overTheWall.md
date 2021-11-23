@@ -1,4 +1,4 @@
-### 目前使用的翻墙
+### 目前使用的翻墙(梯子v2ray）
 
 `https://www.v2aky.jp.net/#/register?code=i2XkkztO`
 
